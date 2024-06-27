@@ -4,5 +4,5 @@ this is my first repo
 its me bro
 <div>
 i am the king of bbsr so what you will do
-nothin bro;
+nothin bro; what the fuck
 </div>
